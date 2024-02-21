@@ -16,7 +16,7 @@
 
 ## How to Reach Me
 
-- 💼 LinkedIn: [Your LinkedIn Profile]([https://www.linkedin.com/in/gemma-tuck-b10468226/])
+- 💼 LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/gemma-tuck-b10468226/)
 
 ## Open to Opportunities
 
